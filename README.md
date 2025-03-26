@@ -11,7 +11,7 @@
 ## How to Reach Me
 
 - 📧 Email: **khoza.makapane@gmail.com**
-- 👨‍💼 LinkedIn: [Makapane Khoza](www.linkedin.com/in/makapane-khoza-a8799a226)
+- 👨‍💼 LinkedIn: [LinkedIn Profile](https://www.linkedin.com/in/makapane-khoza-a8799a226/)
 
 <h3 align="left">Languages and Tools:</h3>
 <p align="left"> 
